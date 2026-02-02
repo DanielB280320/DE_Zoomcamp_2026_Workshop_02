@@ -1,1 +1,1 @@
-# DE_Zoomcamp_2026_Workshop_02
+# DE Zoomcamp 2026 Workshop 02
